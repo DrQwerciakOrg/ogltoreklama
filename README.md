@@ -13,7 +13,7 @@
 
 ### 📌 **Jak do nas dołączyć?**
 1️⃣ Pobierz **FiveM** i zaktualizuj GTA V.
-2️⃣ Wejdź na nasz **Discord** i przejdź rekrutację! 📩
+2️⃣ Wejdź na nasz **Discord**! 📩
 3️⃣ Połącz się z serwerem i rozpocznij swoją przygodę w **Luna City**! 🚀
 
 💬 **Discord:** 
